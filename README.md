@@ -1,0 +1,1 @@
+# Malumotlarni-uyg-unlashtirish-ulash-va-qayta-tiklash
